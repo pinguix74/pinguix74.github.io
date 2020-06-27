@@ -9,3 +9,5 @@ Gemeinsam mit ihrem Pferd Kleiner Onkel und ihrem Affen Herr Nilsson wohnt sie i
 * viel Fantasie
 * sehr stark
 * mutig
+
+> Seit zwei Tagen ohne Schnaps und Schnupftabak, verschmachten wir auf dieser Insel.
